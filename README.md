@@ -282,4 +282,4 @@ MIT
 
 ---
 
-> Made with ❤️ from Nani!
+> Made with ❤️ from Nandini!
